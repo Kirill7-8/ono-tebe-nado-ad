@@ -1,1 +1,1 @@
-«Оно тебе надо» — аукцион вещей, в которые никто не верил.
+https://github.com/Kirill7-8/ono-tebe-nado-ad
